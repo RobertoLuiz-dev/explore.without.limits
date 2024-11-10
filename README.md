@@ -1,4 +1,4 @@
-Expore sem Limites!
+Explore without limits!
 
 ![image](https://github.com/user-attachments/assets/a16575ad-421e-4bb1-95ac-04226b919831)
 
